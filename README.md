@@ -1,1 +1,1 @@
-https://download.cnet.com/s/javascript/ get courses here
+https://download.cnet.com/s/javascript/ get free cources here
